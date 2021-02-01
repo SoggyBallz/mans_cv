@@ -8,7 +8,7 @@
 Es iepriekš mācījos Ilmāra Gaiša Kokneses vidusskolā, kur es ieguvu pamatizglītību. Šobrīd mācos PIKC Rīgas Valsts tehnikumā.
 
 ## Sasniegumi
-Es esmu piedalījies basketbola sacencībās un ieguvis otro vietu, esmu piedalījies diska mešanas sacencības un vairākas reizes ieguvis 2. un 1. vietu.
+Es esmu piedalījies basketbola sacencībās un ieguvis otro vietu, esmu piedalījies diska mešanas sacencības un vairākas reizes ieguvis 2. un 1. vietu. Es ļoti vēlos nākotnē izveidot vai vismaz piedalīties kādas spēles izveidē.
 
 ## Hobiji
 Brīvajā laikā es spēlēju video spēles, bet, kad es neesmu pie datora, man patīk sportot, piemēram, spēlēt basketbolu vai cilāt svarus.
