@@ -2,7 +2,7 @@
 ## Vārds,Uzvārds 
  Ģirts Jansons
 ## Bilde
-![PXL_20210201_125348411](https://avatars.githubusercontent.com/u/78017588?s=460&u=626011c973b2848d315f6b201fec33b9fa6feab4&v=4)    
+![PXL_20210201_125348411](https://avatars.githubusercontent.com/u/78017588?s=400&u=12d1c8bf5eb58a2c87da301a36447b9c5c95daff&v=4)    
 
 ## Izglītība
 Es iepriekš mācījos Ilmāra Gaiša Kokneses vidusskolā, kur es ieguvu pamatizglītību. Šobrīd mācos PIKC Rīgas Valsts tehnikumā.
